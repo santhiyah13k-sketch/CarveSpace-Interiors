@@ -1,4 +1,5 @@
 False Ceiling Design for Bedroom – Create a Comfortable Interior
+(https://carvespace.in/interiors/false-ceiling/)
 The right ceiling design can add warmth and character to a bedroom while creating better opportunities for soft, well-planned lighting. CarveSpace creates customised false ceiling design for bedroom interiors based on room size, furniture arrangement and preferred style.
 False Ceiling Design for Bedroom
 Designed for a calm and balanced atmosphere.
